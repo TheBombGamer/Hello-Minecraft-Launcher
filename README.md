@@ -4,3 +4,4 @@ A cracked Mc launcher with every version back to
 account!
 Made by a good team of devs!
 constantly updated with new versions and some snapshots!
+Hope you enjoy because it has optifine and even 1.12 forge for those types of people
